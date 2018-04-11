@@ -1,6 +1,6 @@
 # ZZukbot-Profiles
 
-** If you are looking for paid profiles, add me on skype!
+** If you are looking for paid profiles, add me on skype! **
 
 ** ordes189@gmail.com
 
